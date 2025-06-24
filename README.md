@@ -1,7 +1,7 @@
 <h2>凌云影视官网，高清电影电视剧在线观看平台|最新影视资源免费入口</h2>
 <p>凌云影视致力于打造一个全面、便捷的在线观影平台，为用户提供高清流畅的观影体验。平台不仅拥有超清画质和强大的P2P下载引擎，还支持离线观看和边播边下功能，极大提升了用户的观影效率。此外，凌云影视还提供个性化推荐和智能搜索功能，帮助用户快速找到喜欢的影视作品。无论是热门电影、经典剧集还是最新动漫，用户都能在这里找到自己感兴趣的内容，并享受免费的观影服务。</p>
 <p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/5837.html" target="_blank"><strong>凌云影视最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
